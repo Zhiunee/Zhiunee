@@ -1,6 +1,6 @@
 # Planet Nine
 
-#### 💥🚓 🚔💀 Kill ALL Cops 💀🚔 🚓💥
+#### 💥🚓 🚔💀Kill Cops💀🚔 🚓💥
 
 ##### 💥💀💀💀💥Zhiunee💥💀💀💀💥
 
@@ -11,9 +11,10 @@ I make the tools. I take ALL the cryptos.
 I is Diogenes. I is Physizicist. I is
 Art dude. Fuck around n find out.
 
-##### 💀💥💥💥💥💀Love ya💀💥💥💥💥💀
+##### 💀💥💥💥💀Love ya💀💥💥💥💀
 
-COME N GET MFER, CAUSE I AINT GOING BACK
+COME N GET MFER, 
+       CAUSE I AINT GOING BACK
 
 
 
